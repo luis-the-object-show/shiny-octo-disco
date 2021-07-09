@@ -1,2 +1,2 @@
-S pring mod for fnf 
-Springtrap mod yes
+download
+copy files into your game
